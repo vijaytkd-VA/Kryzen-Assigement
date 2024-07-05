@@ -1,2 +1,0 @@
-# Kryzen-Assigement
-Kryzen Biotech
